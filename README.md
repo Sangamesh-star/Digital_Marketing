@@ -59,12 +59,12 @@ Master the fundamentals and advanced techniques of **Digital Marketing** with th
 
 ## ✨ Highlights
 
-- Covers **SEO, SEM, SMM, Email Marketing, Video & Content** — All-in-One.
-- Uses industry tools like **Google Analytics GA4**, **Tag Manager**, and **Filmora**.
-- Learn **organic** and **paid** growth techniques across all major platforms.
-- Practical modules with **real-world applications** and tools setup.
-- Ideal for **CSE students, freelancers, bloggers**, and **digital entrepreneurs**.
-- Boost your own **projects, portfolio websites, or startups** using marketing skills.
+- ✅ Covers **SEO, SEM, SMM, Email Marketing, Video & Content** — All-in-One.
+- ✅ Uses industry tools like **Google Analytics GA4**, **Tag Manager**, and **Filmora**.
+- ✅ Learn **organic** and **paid** growth techniques across all major platforms.
+- ✅ Practical modules with **real-world applications** and tools setup.
+- ✅ Ideal for **CSE students, freelancers, bloggers**, and **digital entrepreneurs**.
+- ✅ Boost your own **projects, portfolio websites, or startups** using marketing skills.
 
 ---
 
